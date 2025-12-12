@@ -7,6 +7,6 @@ Feel free to explore what I’ve built so far
 and what I’m quietly crafting next. 🛠️  
 
 ### 📬 Connect
-Happy to connect — reach me by mail.
+Happy to connect — reach me out on X (formerly Twitter).
 
 ---
